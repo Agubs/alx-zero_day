@@ -1,1 +1,2 @@
 Duchess readme
+Cyndy Duquesa
